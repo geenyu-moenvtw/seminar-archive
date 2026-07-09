@@ -12,9 +12,13 @@ https://www.president.gov.tw/News/39879
 
 (2026/4/30)  總統府 氣候變遷對策委員會第七次會議
 總統主持氣候變遷對策委員會第7次委員會議　強調政府積極推動綠蔭倍增戰略　為下一代守護永續希望
+
 總統致詞及報告事項   https://www.youtube.com/watch?v=5cLEdO0G_vg
+
 報告事項二：全民森活 韌性綠網 - 氣候調適綠蔭倍增計畫 (環境部)  https://www.president.gov.tw/File/Doc/b9e89f2f-6985-4919-8407-2181703cf41e
+
 第七次委員會議會議紀錄  https://www.president.gov.tw/File/Doc/3095fa7f-6aa0-4363-80b4-e9f0d98a6e57
+
 
 (2026/5/25) 召開首場國家都市林推動委員會議 鄭副院長：推動「都市林」成為國家韌性基礎建設，以強化氣候調適、守護國人健康、維護臺灣永續發展
 https://www.ey.gov.tw/Page/9277F759E41CCD91/3c5fe94d-ce92-470c-91a0-1576c8e90dd9
